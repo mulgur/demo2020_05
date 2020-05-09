@@ -1,0 +1,1 @@
+Proje Bilgi - Gitle calisma
