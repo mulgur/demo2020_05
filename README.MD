@@ -1,1 +1,1 @@
-Proje Bilgi - Gitle calisma
+iscisin sen isci kal
